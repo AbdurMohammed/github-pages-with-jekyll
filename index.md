@@ -2,6 +2,8 @@
 
 Hi! My name's Abdur Mohammed. I'm a junior at East Brunswick High School.
 
+What I look like: https://imgur.com/9wVILM6
+
 # Brag Sheet
 1. I built my first ever computer when I was 11
 2. I am a lab leader in Waksman
